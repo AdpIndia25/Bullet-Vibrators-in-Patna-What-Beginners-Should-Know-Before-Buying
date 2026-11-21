@@ -107,4 +107,4 @@ You can order from a trusted adult wellness store such as adultpassion, which of
 
 When choosing bullet vibrators in Patna, focus on the essentials: body-safe material, a comfortable size, easy controls, the right power source and a price that fits the quality. Clean and store your product properly, and buy only from a seller that is transparent about what it sells.
 
-Take your time, compare options and shop responsibly. Ready to get started? **Explore bullet vibrators online at www.adultpassion.in** and shop privately and discreetly.
+Take your time, compare options and shop responsibly. Ready to get started? **Explore bullet vibrators online at adultpassion** and shop privately and discreetly.
