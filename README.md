@@ -61,7 +61,7 @@ Many people find online shopping the most practical and private way to buy, and 
 - **Discreet packaging and delivery:** reputable stores use plain packaging that does not reveal the contents. Read the privacy and delivery policy before you order.
 - **Secure online shopping:** look for safe payment options and clear return or replacement terms.
 
-At www.adultpassion.in, you can browse and compare options in private, with no pressure to rush.
+At adultpassion, you can browse and compare options in private, with no pressure to rush.
 
 ## 7. Bullet Vibrator Price in Patna
 
@@ -101,7 +101,7 @@ They are often more convenient, cheaper over time and more powerful. Battery-pow
 Prices vary by material, features, power source and brand, from basic budget models to premium rechargeable ones. Compare listings and check what is included.
 
 **Where can I buy a bullet vibrator online in Patna?**
-You can order from a trusted adult wellness store such as www.adultpassion.in, which offers private browsing and discreet delivery.
+You can order from a trusted adult wellness store such as adultpassion, which offers private browsing and discreet delivery.
 
 ## 10. Conclusion
 
